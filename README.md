@@ -1,1 +1,2 @@
-tinggal jangan lupa buka dulu vexwallet dekstopnya
+tinggal klik
+jangan lupa buka dulu vexwallet dekstopnya
